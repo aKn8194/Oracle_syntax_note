@@ -1,0 +1,1 @@
+# Oracle_syntax_note
